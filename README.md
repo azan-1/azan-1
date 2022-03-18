@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Azan
+- 👀 I’m interested in "even i don't Know"
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to collaborate on .....
+- 📫 How to reach me "Come to my college -_-"
